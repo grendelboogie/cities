@@ -44,6 +44,9 @@ Grüner
 Crazy fancy, expensive and delicious food (make a vendor pay for it!)
 ---------------------------------------------------------------------
 El Gaucho (steakhouse)  
+Mucca Osteria (creative Italian, great wine list, SF size portions (that means small which I like but many don't)
+Higgins (New American cuisine, huge portions but all suprisingly excellent, go for the whole pig platter, they change it up but was exquisite the night I went)
+Veritabel Quandary (Excellent value for the beautifully conceived and presented dishes. Notable wine list (had an 07 Ken Wright Pinot that was in spectacular shape), bacon wrapped dates were wonderfully carmelized, Grilled pork chop with peaches and black kale and smoked pecan biscuit was amazeballs)
 
 Pinball/Video Games
 -------------------
